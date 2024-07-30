@@ -47,4 +47,3 @@ Auteur
 Rostane Fourar-Laidi
 
 Merci d'avoir pris le temps de visiter mon portfolio. N'hésitez pas à me contacter pour toute question ou opportunité professionnelle.
-
